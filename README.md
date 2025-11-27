@@ -28,4 +28,4 @@ ${\textsf{\color{#a9a9a9}c + h so so welcome always}}$
 
 <div align="right">
   
-${\textsf{\color{#a9a9a9}↑↑↑ my HIAF! oc :-3}}$
+${\textsf{\color{#a9a9a9}↑↑↑ my HIAF! oc :-3 (joe kisser duuhh)}}$
