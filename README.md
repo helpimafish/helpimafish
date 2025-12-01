@@ -13,7 +13,7 @@
   
 ${\textsf{\color{#74B9FF}biggest help im a fish! fan ever!! :-D}}$ 
 
-${\textsf{\color{#a9a9a9}auDHD system, unspecified PD}}$
+${\textsf{\color{#a9a9a9}auDHD system, call me tesco :3}}$
 
 ${\textsf{\color{#a9a9a9}i also like mouthwashing, the IT crowd}}$
 <br>${\textsf{\color{#a9a9a9}red dwarf, superstore and many things c(-:}}$
@@ -28,4 +28,4 @@ ${\textsf{\color{#a9a9a9}c + h so so welcome always}}$
 
 <div align="right">
   
-${\textsf{\color{#a9a9a9}↑↑↑ my HIAF! oc :-3 (joe kisser duuhh)}}$
+${\textsf{\color{#a9a9a9}↑↑↑ my fishie oc :-3 (obviously joe kisser)}}$
