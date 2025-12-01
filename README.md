@@ -13,12 +13,12 @@
   
 ${\textsf{\color{#74B9FF}biggest help im a fish! fan ever!! :-D}}$ 
 
-${\textsf{\color{#a9a9a9}auDHD system, call me tesco :3}}$
+${\textsf{\color{#fffff}auDHD system, call me tesco :3}}$
 
-${\textsf{\color{#a9a9a9}i also like mouthwashing, the IT crowd}}$
-<br>${\textsf{\color{#a9a9a9}red dwarf, superstore and many things c(-:}}$
+${\textsf{\color{#fffff}i also like mouthwashing, the IT crowd}}$
+<br>${\textsf{\color{#fffff}red dwarf, superstore and many things c(-:}}$
 
-${\textsf{\color{#a9a9a9}c + h so so welcome always}}$
+${\textsf{\color{#fffff}c + h so so welcome always}}$
 
 [main git](https://github.com/tescoexp)
 </div>
@@ -28,4 +28,4 @@ ${\textsf{\color{#a9a9a9}c + h so so welcome always}}$
 
 <div align="right">
   
-${\textsf{\color{#a9a9a9}↑↑↑ my fishie oc :-3 (obviously joe kisser)}}$
+${\textsf{\color{#fffff}↑↑↑ my fishie oc :-3 (obviously joe kisser)}}$
