@@ -13,12 +13,12 @@
   
 ${\textsf{\color{#74B9FF}biggest help im a fish! fan ever!! :-D}}$ 
 
-${\textsf{\color{#fffff}auDHD system, call me tesco :3}}$
+call me tesco :^) systemn, adhd asd
 
-${\textsf{\color{#fffff}i also like mouthwashing, the IT crowd}}$
-<br>${\textsf{\color{#fffff}red dwarf, superstore and many things c(-:}}$
+i also like mouthwashing, the IT crowd
+red dwarf, superstore and many things c(-:
 
-${\textsf{\color{#fffff}c + h so so welcome always}}$
+c + h so so welcome always
 
 [main git](https://github.com/tescoexp)
 </div>
@@ -28,4 +28,4 @@ ${\textsf{\color{#fffff}c + h so so welcome always}}$
 
 <div align="right">
   
-${\textsf{\color{#fffff}↑↑↑ my fishie oc :-3 (obviously joe kisser)}}$
+my hiaf! oc yaaaayyy
