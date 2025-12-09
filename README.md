@@ -13,14 +13,13 @@
   
 ${\textsf{\color{#74B9FF}biggest help im a fish! fan ever!! :-D}}$ 
 
-call me tesco :^) systemn, adhd asd
-
 i also like mouthwashing, the IT crowd, gazillionaire,
 <br>papas pizzeria, red dwarf, superstore and many things c(-:
 
 c + h so so welcome always
+<br>whether we are friends or not ^ ^
 
-[main git](https://github.com/tescoexp)
+[main gitub](https://github.com/tescoexp)!!!
 </div>
 
 <br><img src="https://64.media.tumblr.com/50e125e46f87c938c890600c0f5e212e/4fe0da3b16f5974d-31/s250x400/04b0384fa5890f5e48fe8f59e373e158d84cd821.webp"> <img src="https://64.media.tumblr.com/e55e9b565a504837ae3f495076dc350e/9bc13a85c1a9cd76-49/s250x400/271435f08fe19fd0b7c37bc936202f505efe4db0.gifv">
