@@ -3,7 +3,7 @@
 <br>![](https://komarev.com/ghpvc/?username=gentlehandsplease&style=flat-square&label=fishies&color=5495ff)⠀<img src="https://64.media.tumblr.com/b6b313ddbb5760497bf9e986887328a1/280f05da42d3b5b8-73/s75x75_c1/f871687aded3157abc756b0bcf97e1aa366eefbc.gifv">
 
 </div>
-<img src="https://media.discordapp.net/attachments/1176971119765495818/1419437267562532986/hellofish.gif?ex=692a15f8&is=6928c478&hm=9ea4742dac9a72547eb8f352a9166e6895fbcd505293fceabdcaf707b4c87944&=&width=710&height=522" align="right" width="%60" height="%70"></a>
+<img src="hellofish.gif" align="right" width="%60" height="%70"></a>
 
 </div>
 <div align="center">
