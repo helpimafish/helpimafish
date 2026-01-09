@@ -26,5 +26,3 @@ c + h so so welcome always
 <br><img src="https://64.media.tumblr.com/bf7b53a96dac4a630e8b176be7bbdd5d/a2b9a9b92798b874-13/s250x400/96d98e84ccdd6107a6281a195f5160707b54541a.gifv">
 
 <div align="right">
-  
-my hiaf! oc yaaaayyy
